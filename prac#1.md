@@ -7,3 +7,4 @@ kj is beside and hes judging me
 sam and anson are behind me and they are so noisy 
 HELLO OKAY BYE 
 ahhhhhhhhhhhhhhhhhhhhhhhh
+its so cool because i got to actually add a picture lol HAHAH 
